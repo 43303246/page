@@ -1,0 +1,1 @@
+These are one page quality templates. They are downloaded from the internet.
